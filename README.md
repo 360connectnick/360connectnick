@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Nick the CEO of 360 connect
+- 👋 Hi, I’m Nick the CEO of 360 connect & Founder of FF SYSTEMS
 - 👀 I’m interested in development, business and outdoor actvities  
 - 📫 How to reach me nicholas@360connect.app
 
